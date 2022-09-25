@@ -29,4 +29,4 @@ Burp Suite Professional version crack with licence key generator :)
 -----------------------------------------------------------------------------------------------------------------
 # Video For Reference 
 	--> Windows Server:-: Windows server install 2022 in Virtualbox
-[!][Windows Server 2022 install in virtualbox](https://img.youtube.com/vi/kYhkjNLCpSU/0.jpg)(https://youtube.com/watch?v=kYhkjNLCpSU)
+[![Windows Server 2022 install in virtualbox](https://img.youtube.com/vi/kYhkjNLCpSU/0.jpg](https://youtube.com/watch?v=kYhkjNLCpSU)
